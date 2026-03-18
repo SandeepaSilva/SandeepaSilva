@@ -6,7 +6,7 @@
 </p>
 
 ### Reach Me on
-- 📧 **@gmail.com**  
+- 📧 **silvasandeepaiit@gmail.com**  
 - 🌐 [LinkedIn](https://www.linkedin.com/in/SandeepaSilva/)  
 
 ---
